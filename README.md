@@ -1,2 +1,2 @@
-# Freedom-MINI1
-හ්
+# FREE-BOT
+Tha project solo-leveling md mini bot ⚙️
